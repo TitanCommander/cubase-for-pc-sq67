@@ -1,4 +1,4 @@
-# 
+# Cubase for PC | Cubase for Windows instant Tool: effects-chains & piano-roll is the best Cubase for PC | Cubase for Windows tool, featuring effects-chains and piano-roll.
 
 
 
